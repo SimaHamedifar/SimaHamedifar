@@ -19,4 +19,4 @@ Always happy to talk about research, open-source projects, or new ideas!
 
 👩🏻‍💼  [LinkedIn](http://www.linkedin.com/in/sima-hamedifar)
 
-📄 [GoogleScolar](https://scholar.google.com/citations?user=c0fwCakAAAAJ&hl=en
+📄 [GoogleScholar](https://scholar.google.com/citations?user=c0fwCakAAAAJ&hl=en)
