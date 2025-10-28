@@ -16,5 +16,7 @@ I hold an MSc and a BSc from Tabriz University of Technology, both in Electrical
 
 Always happy to talk about research, open-source projects, or new ideas!
 📧 simahamedifar@cmail.carleton.ca
+
 👩🏻‍💼  [LinkedIn](http://www.linkedin.com/in/sima-hamedifar)
+
 📄 [GoogleScolar](https://scholar.google.com/citations?user=c0fwCakAAAAJ&hl=en
